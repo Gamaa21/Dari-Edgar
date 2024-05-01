@@ -1,2 +1,3 @@
 # Dari-Edgar
-Buatnya buru-buru, maaf kalo speknya terlalu Whatsapp..
+Kalo bukan Bian kagak usah kesini anjir.
+Bian, aku buatnya buru-buru, maaf kalo speknya terlalu Whatsapp..
